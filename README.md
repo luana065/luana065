@@ -10,3 +10,6 @@ Meu nome é Luana
 
 - 00001134026560sp@aluno.educacao.sp.gov.br
 - https://WWWW.instagram.com/__luanaaxz?igsh=MTZvNzR6dm80bWhrbg%3D%3D&utm_source=qr
+
+
+![](https://media1.tenor.com/m/HI2NgaoEP-sAAAAC/hi.gif)
